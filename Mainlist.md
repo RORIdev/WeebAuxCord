@@ -7,6 +7,7 @@ Add any mixtapes of your liking.
 
 * https://soundcloud.com/angeart/edadrenaline-j-core-remix [ED] (JCore)
 * https://soundcloud.com/trashbine/if-adrenaline-was-future-funk [ED] (Future Funk)
+* https://www.youtube.com/watch?v=MfnZRq_4A-s [OP] <All Star>
 
 ### Kobayashi-san Chi no Maid Dragon
 
