@@ -11,5 +11,5 @@ Add any mixtapes of your liking.
 
 ### Kobayashi-san Chi no Maid Dragon
 
-* https://soundcloud.com/sergio-shand/24-dragon-magic-fhana-edition [OP] <Unknown>
+* https://soundcloud.com/sergio-shand/24-dragon-magic-fhana-edition [OP] < Bruno Mars - 24K Magic >
 * https://soundcloud.com/yungryo/kobayashi-san-chi-no-maid-dragon-op [OP] <DMX - X Gon' Give It To Ya>
