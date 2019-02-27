@@ -2,7 +2,7 @@
 Formating guide :
 
 link [Origin] (style of the remix) AND OR <song/songs that is/are being mixed with, bgm>
-Add any mixtapes of your linking.
+Add any mixtapes of your liking.
 ### Eromanga sensei
 
 * https://soundcloud.com/angeart/edadrenaline-j-core-remix [ED] (JCore)
