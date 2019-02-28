@@ -13,4 +13,4 @@ Add any mixtapes of your liking.
 
 * https://soundcloud.com/sergio-shand/24-dragon-magic-fhana-edition [OP] < Bruno Mars - 24K Magic >
 * https://soundcloud.com/yungryo/kobayashi-san-chi-no-maid-dragon-op [OP] <DMX - X Gon' Give It To Ya>
-* https://www.youtube.com/watch?v=dwKZ6n1R4fk [Ame Ame Ame - EP 6] (EDM)
+* https://soundcloud.com/projectskylateofficial/ame-ame-ame-kanna-kamui [Ame Ame Ame - EP 6] (EDM)
