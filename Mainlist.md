@@ -14,3 +14,7 @@ Add any mixtapes of your liking.
 * https://soundcloud.com/sergio-shand/24-dragon-magic-fhana-edition [OP] < Bruno Mars - 24K Magic >
 * https://soundcloud.com/yungryo/kobayashi-san-chi-no-maid-dragon-op [OP] <DMX - X Gon' Give It To Ya>
 * https://soundcloud.com/projectskylateofficial/ame-ame-ame-kanna-kamui [Ame Ame Ame - EP 6] (EDM)
+
+### Nisemonogatari
+* https://soundcloud.com/kxtrance/platinum-disco-baby-im-yours-by-nakinyko [OP 3 (Platinum Disco)] < Breakbot - Baby I'm yours >
+* https://www.youtube.com/watch?v=mne1v3X_Ro0&feature=youtu.be [OP 3] < Renai Circulation >
